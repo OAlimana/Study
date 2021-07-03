@@ -1,13 +1,1 @@
-# Study
-
-hoihoihihiohiohoi
-
-## hjgjhgjhg
-jkjlkjlk
-ljkjlk
-
-* yuyguyguy
-* gjhgjh
-* hgjhgj
-
-
+# Study 2
